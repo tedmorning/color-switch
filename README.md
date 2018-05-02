@@ -1,0 +1,2 @@
+# color-switch
+Crazy Wheel: Swap color switch is a mental brain reflex puzzle game designed to help you relax and test your brain at the same time. Tap the screen to match the color of the arrow dial to the color of the switch wheel. Games can be played at any place to relax, train your brain, develop your mental skills, and relieve stress. It is a perfect and relaxing game to play when you only have a few minutes of time. Challenge yourself and compete with your friends, colleagues and family in this new crazy addicting stress relief game!
